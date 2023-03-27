@@ -1,1 +1,1 @@
-a group project done by Victor Mbewe and Hafsah Awal
+a group project done by Victor Mbewe and Hafsah
